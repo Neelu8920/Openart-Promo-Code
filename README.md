@@ -7,7 +7,7 @@ Whether you are searching for an **Openart AI Discount Code**, an **Openart AI C
 
 ## 🎁 OpenArt Promo Code & Offer Details  
 
-- **Promo Code:**  `[`EYIR8AQK](https://openart.ai/home/?via=activeoffer)    
+- **Promo Code:**  [EYIR8AQK](https://openart.ai/home/?via=activeoffer)    
 - **Discount:** 50% OFF for all plans  
 - **Validity:** Lifetime (always active)  
 - **Who Can Use:** New and existing users worldwide  
