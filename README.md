@@ -1,4 +1,4 @@
-# OpenArt Discount Codes – 50% Off Promo Code for All Plans, Code EYIR8AQK  
+# OpenArt Discount Codes – 50% Off Promo Code for All Plans, Code  
 
 Looking to save on premium AI image generation and editing? With our exclusive **OpenArt Discount Codes**, you can now unlock a **flat 50% OFF on all plans**. The **Openart AI Promo Code EYIR8AQK** works worldwide and is valid for all users, giving you instant savings on OpenArt’s powerful tools.  
 
